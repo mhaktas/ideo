@@ -1,0 +1,2 @@
+# ideo
+Anlamadım kine!!
